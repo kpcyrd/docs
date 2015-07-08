@@ -40,7 +40,7 @@ http://sett.com/alansjourney/52637
 
 http://www.zive.cz/clanky/sest-alternativnich-a-zapomenutych-internetu/sc-3-a-169392/default.aspx
 
-## German???
+## German
 
 http://scratchbook.ch/2013/06/24/cjdns/
 
