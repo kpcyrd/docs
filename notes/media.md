@@ -44,6 +44,8 @@ http://scratchbook.ch/2013/06/24/cjdns/
 
 ## In Russian
 
+http://www.kommersant.ru/doc/2602864
+
 http://habrahabr.ru/post/181862/
 
 http://habrahabr.ru/post/182652/
